@@ -1,2 +1,2 @@
-# jystin.github.io
+# Xin Jiang
 个人博客
